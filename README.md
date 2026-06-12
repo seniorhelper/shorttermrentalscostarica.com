@@ -1,0 +1,2 @@
+# shorttermrentalscostarica.com
+shorttermrentalscostarica.com
